@@ -1,4 +1,4 @@
-# 
+# Natif geckoterminal sniper bot outils pour Mac OS | Avancé geckoterminal sniper bot outils pour PC Windows. Avec estimation des frais de gaz et endpoints RPC privés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
